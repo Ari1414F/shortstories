@@ -1,1 +1,1 @@
-[Новелла](github.com/Ari1414F/shortstories/степик/степик1.html)
+[Новелла](https://github.com/Ari1414F/shortstories/степик/степик1.html)
